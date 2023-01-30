@@ -1,5 +1,7 @@
 ## LeeMITO.github.io
 
+https://cphigh05.cafe24.com/bluesquare/
+
 ## Team Projetcs 블루스퀘어 홈페이지 리뉴얼
 
 
